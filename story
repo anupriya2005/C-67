@@ -1,0 +1,1 @@
+Oce upon a time a lion, crocodile and monkey lived in a dense forest. All three were very close friends. 
